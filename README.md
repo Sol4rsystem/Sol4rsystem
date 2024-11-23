@@ -6,7 +6,7 @@
 
 ✩ Collective names ) __Star/Solar__
           
-★ we follow friends and people we think are cool !!
+★ Anyone from any fandom can int !!
     
 ✩ Any terms r okay! . ★ .  he / she / they . 
 
