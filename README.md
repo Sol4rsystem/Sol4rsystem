@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/s8ax4p.jpg)
+
 
 ╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮
 
@@ -14,7 +14,6 @@
 
 └── •✧• ──┘
 
-![](https://files.catbox.moe/vtx02m.gif)
 
 wip
 
