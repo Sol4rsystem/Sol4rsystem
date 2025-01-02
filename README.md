@@ -8,14 +8,13 @@
           
 ★ Anyone from any fandom can int !!
     
-✩ Any terms r okay! . ★ .  he / she / they . 
+✩ Any terms r okay! . ★ .  he / she / they / it . + some neos 
 
-★ from the Netherlands !
+★ from the Netherlands ! 
 
 └── •✧• ──┘
 
 
-wip
 
 <!---
 Sol4rsystem/Sol4rsystem is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
